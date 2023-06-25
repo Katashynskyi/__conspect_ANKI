@@ -1,1 +1,1 @@
-# My personal FAQ for interview in EN and AU lang.
+# My personal FAQ for interview in EN and UA lang.
